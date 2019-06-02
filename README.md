@@ -1,1 +1,1 @@
-# Disciple-Makers-Website
+# Disciple Makers Institute Website
